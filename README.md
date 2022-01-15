@@ -1,4 +1,4 @@
-### Hi there 👋
+###MTsN 1 Banda Aceh Student Council
 
 <!--
 **osimmtsn1bandaaceh/osimmtsn1bandaaceh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
